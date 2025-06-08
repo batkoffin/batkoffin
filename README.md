@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/6d612a4217d0d69f5e5ec0934b2c2fd6/33018824c8d74010-c6/s1280x1920/6a76f93a7f77dd4c279252a2cfe0fffc22c651c2.pnj)
-![17452716034476679081400517836215](https://64.media.tumblr.com/413dbf42a983f44255b662fe969ee753/0205075164989581-91/s1280x1920/9b4e782ca2ea06cfc8ea71f6936ce0837f3c5477.pnj) 
+![](https://64.media.tumblr.com/f03816cc2df78972dcf7fc28b9945bc2/2713fd4154490ecb-8c/s1280x1920/57d12f2c1928ed81ba5b1b446b31690c5e87fe77.pnj)
+![17452716034476679081400517836215](https://64.media.tumblr.com/2ca56d3ed81b262395a18786ec41232c/c8788e1080348e9e-f6/s1280x1920/8e4de342b3d51999368ddecc9d05f30c708aa044.gifv) 
              [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tadl6ypn7mnxlcqp7ku4qsxdru&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31tadl6ypn7mnxlcqp7ku4qsxdru&redirect=true)  
-![](https://64.media.tumblr.com/2625d83fc7b6f6916d224e7e5aa1828a/33018824c8d74010-3f/s1280x1920/b1d5c4df033343d0a3038aa212f3f610d8b2c9a3.pnj)
+![](https://64.media.tumblr.com/f03816cc2df78972dcf7fc28b9945bc2/2713fd4154490ecb-8c/s1280x1920/57d12f2c1928ed81ba5b1b446b31690c5e87fe77.pnj)
